@@ -1,0 +1,4 @@
+- 🌙 Hi, I’m @NotFicLua
+- ✒ I’m interested in: creating WebDesign, game programming
+- ✒ I’m currently: learning the basics
+- 📫 How to reach me: izizkz@outlook.com
